@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **DSA**
 
-- 📫 How to reach me **amanyadavcode@gmail.com**
+- 📫 How to reach me **yadavankush2404@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
